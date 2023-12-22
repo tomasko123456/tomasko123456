@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tomasko123456
 - 👀 I’m interested in github community 
 - 🌱 I’m currently learning about community
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on my project
 - 📫 How to reach me ...
 
 <!---
