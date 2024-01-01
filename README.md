@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning about community
 - 💞️ I’m looking to collaborate on my project WITH YOU 
 - 📫 How to reach me ...VIA github or twitter and write me what DO you need from me via mail
+- gors
 - 
 
 <!---
