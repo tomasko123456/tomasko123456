@@ -12,7 +12,7 @@
   - ALL WEEKEND
   - EXCEPT SUNDAY
   - AND EVERY SECOND MONDAY OR THUESDAY
-  - THANK YOU 
+  - THANK YOU for your kidness
 
 <!---
 tomasko123456/tomasko123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
