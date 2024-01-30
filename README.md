@@ -13,7 +13,8 @@
   - EXCEPT SUNDAY
   - AND EVERY SECOND MONDAY OR THUESDAY
   - THANK YOU for your kidness OE wissdom.
-  - WATCH ME RISE OR LET ME 
+  - WATCH ME RISE OR LET ME
+  - thanks
 
 
 <!---
