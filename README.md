@@ -17,7 +17,6 @@
   - thanks FOR YOUR TIME 
   - WHAT IS FUNNY ?
   - WHEN YOU LAUGHT AT ME I GRIND HARDER
-  - harder than you or you OR EVEN ME :D
 
 
 <!---
