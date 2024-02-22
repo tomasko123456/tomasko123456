@@ -17,8 +17,6 @@
   - thanks FOR YOUR TIME 
   - WHAT IS FUNNY ?
   - WHEN YOU LAUGHT AT ME I GRIND HARDER OR LET ME
-  - T LLIKE THANK YOU 
-- WHOAPAA
 
 <!---
 tomasko123456/tomasko123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
