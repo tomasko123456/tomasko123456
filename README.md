@@ -14,8 +14,5 @@
   - AND EVERY SECOND MONDAY OR THUESDAY
   - THANK YOU for your kidness OE wissdom.
   - WATCH ME RISE OR LET ME
-  - thanks FOR YOUR TIME 
-  - WHEN YOU LAUGHT AT ME I GRIND HARDER OR LET ME
-
-<!---
+  
 tomasko123456/tomasko123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
