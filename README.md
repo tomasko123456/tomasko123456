@@ -11,6 +11,5 @@
   - FROM MONDAY TILL FRIDAY
   - ALL WEEKEND
   - AND EVERY SECOND MONDAY OR THUESDAY
-  - THANK YOU for your kidness OE wissdom.
   
 tomasko123456/tomasko123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
