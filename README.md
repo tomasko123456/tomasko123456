@@ -6,7 +6,5 @@
 - you know what to do
 - if you dont write me
 - - tell me YOUR story OR DONT
-  - IM HERE EVERY DAY
-  - REALYY
   
 tomasko123456/tomasko123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
