@@ -6,6 +6,6 @@
 - you know what to do
 - IF YOU DONT WRITE ME
 - JUST LET IT GO
-- THANKS EVERYONE FOOOOR
+- THANKS EVERYONE FOOOOR YOUR COMPANY 
 
 tomasko123456/tomasko123456 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
